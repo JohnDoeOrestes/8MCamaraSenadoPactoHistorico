@@ -1,6 +1,3 @@
-# MeLlamoIvanCepeda
+# ¡ATENCIÓN!  Pedagogía electoral para las elecciones del 8 de marzo.
 
-y voto #IvánPresidente	
-y quiero #UnaCampañaConArte	
-y quiero un #PactoConIvan
-y quiero un #CAMBIOPORLAVIDA
+Luego de la decisión del Consejo Nacional Electoral de impedir su participación en la consulta del 8 de marzo. Este 8 de marzo solo votamos por las listas de Cámara y Senado del Pacto Histórico.
